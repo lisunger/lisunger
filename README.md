@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lisunger
-- 👀 I’m interested in painting with crayons
+- 👀 I’m interested in drawing with crayons
 - 🌱 I’m currently learning to play the guitar
 - 📫 How to reach me - don't.
 
